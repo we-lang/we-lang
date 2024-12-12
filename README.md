@@ -1,4 +1,4 @@
-- 👋 Hi, I’m nai
+𝑯𝑰 𝑻𝑯𝑬𝑹𝑬 , 𝑰'𝑴 𝑵𝑨𝑰 
 - 👀 I’m interested in everything new
 - 🌱 I’m currently learning informatics
 - 💞️ I’m looking to collaborate on u?
